@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Wqsa-afro
-- 👀 I’m interested in ... Mapping
+- 👀 I’m interested in ... 
 - 💞️ I’m to collaborate on ... server Vanilla Station in SS14
 - 📫 How to reach me ... potas10@bk.ru
 
